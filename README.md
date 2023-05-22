@@ -15,6 +15,7 @@
 - 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1WlL2ApLGI5lgGraH-moxzNF-LPymziyn/view?usp=sharing)
 
 - ⚡ Fun fact **I have a good sense of humor**
+- You can vist my [Portfolio](https://yashtriyar.netlify.app/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
