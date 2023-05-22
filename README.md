@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **yashtriyar@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1pX1yaxd3I0fmvw4aijBbTGUsAaVs1nV2/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1WlL2ApLGI5lgGraH-moxzNF-LPymziyn/view?usp=sharing)
 
 - ⚡ Fun fact **I have a good sense of humor**
 
